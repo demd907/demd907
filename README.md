@@ -16,7 +16,7 @@
 
 ## 📫 연락하기
 - 이메일: riborih@gmail.com
-- GitHub: [github.com/demd907(htttps://github.com/KangSanhHae)
+- GitHub: [github.com/demd907(htttps://github.com/demd907)
 
 ---
 
